@@ -1,3 +1,0 @@
-## kaizenaut.com
-
-Comming soon...
